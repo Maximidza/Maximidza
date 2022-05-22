@@ -1,6 +1,6 @@
 🔭 1. 𝙑𝙆 - https://vk.cc/Saputliliput
 
-👯 2. 𝙎𝙩𝙚𝙖𝙢 - https://vk.cc/Saputliliput
+👯 2. 𝙎𝙩𝙚𝙖𝙢 - https://steamcommunity.com/profiles/76561198799705880
 
 💞️ 3. 𝘿𝙞𝙨𝙘𝙤𝙧𝙙 - фоксл#8395
 
